@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ayeshafatima125
-- 👀 I’m interested in lrarning
+- 👀 I’m interested in learning
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on development projects
 - 📫 How to reach me Through email
